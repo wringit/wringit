@@ -10,5 +10,6 @@
 -  i like dont know what I'm doing
 -  i use he/him/his pronouns
 -  You know you should like totally look at my one gist: https://gist.github.com/wringit
+-  oh and also my leetcode: https://leetcode.com/u/tinmug/
 
 thank you for reading my bio it is my proudest achievement and will never be rivaled by another bio so long as guthub exists 
