@@ -9,5 +9,6 @@
 -  I also kind of like composing music but I'm bad at it and have no intention on doing it professionally
 -  i like dont know what I'm doing
 -  i use he/him/his pronouns
+-  You know you should like totally look at my one gist: https://gist.github.com/wringit
 
 thank you for reading my bio it is my proudest achievement and will never be rivaled by another bio so long as guthub exists 
