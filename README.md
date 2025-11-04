@@ -1,6 +1,5 @@
 ## Hi there 👋
 
--  I’m currently working on hamster game (see my repos)
 -  I’m currently learning machine learning
 -  I enjoy playing violin (I was playing Mendelssohn but my teacher switched me to Legende and now I'm sad)
 -  I like hollow knight and silksong but i havent finished silksong
