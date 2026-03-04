@@ -1,6 +1,6 @@
 ## Hi there 👋
 
--  I’m currently learning machine learning
+-  I’m currently learning NextJS kind of
 -  I enjoy playing violin (i am currently playing Andante and Allegro from Bach Sonata 2 and i stg after the andante I am never playing another double stop in my life, also im playing Mahler 7 in orchestra)
 -  I like hollow knight and silksong but i havent finished silksong
 -  I run for fun because I enjoy pain ❤️ 
