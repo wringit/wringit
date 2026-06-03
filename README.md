@@ -1,10 +1,10 @@
 ## Hi there 👋
 
--  I’m currently learning NextJS kind of
--  I enjoy playing violin (i am currently playing Andante and Allegro from Bach Sonata 2 and i stg after the andante I am never playing another double stop in my life, also im playing Mahler 7 in orchestra)
+-  Idk what im currently learning im trying to learn like eighty different things
+-  I enjoy playing violin (im playing Symphonie Espagnole by Lalo which is neither Espagnole nor a Symphony)
 -  I like hollow knight and silksong but i havent finished silksong
 -  I run for fun because I enjoy pain ❤️ 
--  My favorite book series are the Three Body Problem series by Cixin Liu, Locked Tomb series by Tamsyn Muir and Dune/Dune Messiah by Frank Herbert (I heard they get bad after Messiah so I stopped reading lol)
+-  My favorite book series are the Three Body Problem series by Cixin Liu, Locked Tomb series by Tamsyn Muir, Lord of the Rings by J. R. R. Tolkien, and Dune/Dune Messiah by Frank Herbert (I heard they get bad after Messiah so I stopped reading lol)
 -  I also kind of like composing music but I'm bad at it and have no intention on doing it professionally
 -  i like dont know what I'm doing
 -  i use he/him/his pronouns
