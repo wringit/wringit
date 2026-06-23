@@ -4,7 +4,7 @@
 -  I enjoy playing violin (im playing Symphonie Espagnole by Lalo which is neither Espagnole nor a Symphony)
 -  I like hollow knight and silksong but i havent finished silksong
 -  I run for fun because I enjoy pain ❤️ 
--  My favorite book series are the Three Body Problem series by Cixin Liu, Locked Tomb series by Tamsyn Muir, Lord of the Rings by J. R. R. Tolkien, and Dune/Dune Messiah by Frank Herbert (I heard they get bad after Messiah so I stopped reading lol)
+-  My favorite book series are the Three Body Problem series by Cixin Liu, Locked Tomb series by Tamsyn Muir, Lord of the Rings by J. R. R. Tolkien, and Dune/Dune Messiah by Frank Herbert (I heard they get bad after Messiah so I stopped reading lol) also I'm currently reading the Mahabharata? My dad really liked it so I decided to read it and it's an interesting work
 -  I also kind of like composing music but I'm bad at it and have no intention on doing it professionally
 -  i like dont know what I'm doing
 -  i use he/him/his pronouns
